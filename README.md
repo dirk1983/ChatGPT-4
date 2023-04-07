@@ -12,6 +12,7 @@ GPT-4时代已经到来，群里的技术大拿和创业先锋们紧跟时代潮
 
 
 
-由于群里人数已超过200，无法直接扫码进群，想进群的朋友可以加热心网友小号，由他帮忙拉进群。
+旧群人已满，请加新群，预计5天就能满。
 
-![微信截图_20230306154434](https://user-images.githubusercontent.com/5563148/223048985-4cac05cb-acf0-4f04-aad5-1c3dcec609d0.png)
+![微信截图_20230407163533](https://user-images.githubusercontent.com/5563148/230574372-b653593a-e261-43b9-ba7b-8640e2d7fb0b.png)
+
